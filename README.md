@@ -1,0 +1,136 @@
+# Sofia Reyes – 1, 2, 3
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Sofía, feature his dear
+¡De La!
+Oh, baby, I'm thinkin' maybe
+That you were
+always a piece of sh...
+You're rubbin'
+your dirt on everyone's skirt
+You know how to be a d...
+D-dónde están tus modales
+que no aprendiste ni a saludar
+(jajaja)
+Parece que hoy me gustas
+un poco más
+(ok)
+Hola, comment allez, allez-vous?
+So nice to meet ya
+You say
+we shoud go and get a room
+(no)
+If you wanna turn it on
+Go, get a lightbulb,
+después hablamos
+If you wanna turn it on
+Go, get a lighter,
+después bailamos
+Oh, un, dos, tres, un, dos, tres
+Si te doy un beso
+ya estás a mis pies
+Dime un, dos, tres,
+un, dos, tres
+La, la, la, la, la
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+Baby, just hush the talkin'
+And let my lovin' ease your mind
+If love's the game
+Let's play a million times
+(mm-hmm)
+Baby, give it to me
+I'll be good company
+Baby, mi nombre es
+Jason Derulo, oh
+If you wanna turn it on
+Go, get a lightbulb,
+después hablamos
+(hey)
+If you wanna turn it on
+Go, get a lighter,
+después bailamos
+(ya, ya)
+Oh, un, dos, tres, un, dos, tres
+Si te doy un beso
+ya estás a mis pies
+Dime un, dos, tres
+(un, dos, tres)
+un, dos, tres
+La, la, la, la, la
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+(La, la, la, la, la)
+De La Ghetto, baby
+Disculpe la ignorancia,
+nunca quise lastimarte
+Lo que quiero es transformarte
+en mi diosa, mi obra de arte
+(ok)
+Dime si tú quiere'
+averiguar cómo se hace
+Prendemo' to'a la noche
+y a las nubes voy a llevarte
+Quiero yo enseñarte
+mucha' cosa' interesante'
+(De La)
+Convertirte en mi dama,
+en la cama amarrarte
+(ok)
+Besarte arriba, abajo,
+pa' ponerlo interesante
+(tú sabes)
+Después de todo esto nunca vas
+a olvidarte
+(Geezy)
+Hola, comment allez, allez-vous?
+(Sofía)
+(Wassup, De La, Jason Derulo)
+It's 'bout time
+we go and get a room
+Ooh
+If you wanna turn it on
+Go, get a lightbulb,
+después hablamos
+(hey)
+If you wanna turn it on
+Go, get a lighter,
+después bailamos
+(yeah, yeah)
+Oh, un, dos, tres, un, dos, tres
+Si te doy un beso
+ya estás a mis pies
+Dime un, dos, tres,
+un, dos, tres
+La, la, la, la, la
+La la la la la
+Un, dos, tres
+Un, dos, tres
+Care for me, uno, dos, tres
+Un, dos, tres
+Un, dos, tres
+Love how you count it out
+for me, babe
+Un, dos, tres
+Imma make you a freak, uh
+Care for me, uno, dos, tres
+(con los chulitos hommie)
+Un, dos, tres
+(Hey)
+Un, dos, tres
+Love how you count it out
+for me, babe
+```
